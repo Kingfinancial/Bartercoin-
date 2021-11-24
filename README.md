@@ -1,0 +1,2 @@
+# Bartercoin-
+Digital currency 
